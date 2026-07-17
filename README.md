@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Im Abhi, 1 word? Peacock Feather 
+
+Currently Tryna Do Cancer Vascular Simualtion with Fluid Dynamics, 
+
+Codes Python
